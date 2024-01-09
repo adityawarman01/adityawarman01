@@ -1,4 +1,3 @@
-### Halo Semua!👋
 
 Hi Guys, i'm Muhammad Adithya Warman.\
 Bangkit academy graduates batch 2 2023\
